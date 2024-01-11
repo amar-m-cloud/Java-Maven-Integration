@@ -1,5 +1,5 @@
-Hello Team,
+Hello Everyone
 
-Welcom to AI Tech Nova
+This is Amar Mattaparthi
 
-Kool & Relax
+Follow me on LinkedIn
